@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Abomination-Andrew
+- 🌱 I’m currently learning C#
+- 📫 How to reach me:
+- Instagram:
+-      @A.N.D.R.E.W.6   
